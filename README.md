@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Serhii Rybak
-- 📫 How to reach me: www.t.me/sergiorbk
+I’m Serhii Rybak
+You can reach me here www.t.me/sergiorbk
